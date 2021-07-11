@@ -76,3 +76,4 @@ bob is mad
 bob is mad
 https://drive.google.com/file/d/13-KfFMQkTce4-a2u0vGS8MUoeMxpv9MX/view
 from this https://sites.google.com/view/bobismad
+(NEW UPDATE) play it here -> https://gamebanana.com/mods/285296
